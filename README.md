@@ -11,5 +11,7 @@ Now I’m interested in monitoring and automatization.
 I’m currently learning the Kubernetes.
 #### Contacts
 How to reach me: https://t.me/opercode
-#/#stophatingrussians
 
+#stophatingrussians
+Capitalism and its propagandizing politicians are a global evil.
+ Be friends and love everyone regardless of skin color and language.
