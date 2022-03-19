@@ -12,6 +12,7 @@ I’m currently learning the Kubernetes.
 #### Contacts
 How to reach me: https://t.me/opercode
 
-#stophatingrussians
-Capitalism and its propagandizing politicians are a global evil.
- Be friends and love everyone regardless of skin color and language.
+#stophatingrussians  
+Capitalism and its propagandizing politicians are a global evil.  
+Be friends and love everyone regardless of skin color and language.  
+War is always terrible. It doesn't matter who started it and when. And the one who sows discord and civil wars around the world is terrible.  
