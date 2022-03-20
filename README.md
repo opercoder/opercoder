@@ -10,7 +10,9 @@ It was very interesting to code in Assembly, C, C++, C#, QT, VBA.
 Now I’m interested in monitoring and automatization.
 I’m currently learning the Kubernetes.
 #### Contacts
-How to reach me: https://t.me/opercode
+How to reach me:
+Telegram: https://t.me/opercode
+Instagram: https://www.instagram.com/alexfunpic
 
 #stophatingrussians  
 Capitalism and its propagandizing politicians are a global evil.  
